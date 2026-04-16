@@ -1,5 +1,7 @@
 <img width="1920" height="1080" alt="Thumb" src="https://github.com/user-attachments/assets/cc8b0510-f485-415c-9a7c-c5acb655181a" />
 
+https://youtu.be/eg8tx8Mla8g?si=LSZyjBFc_pkfXaBK
+
 
 # Badaple
 (IDK someone please name it)
